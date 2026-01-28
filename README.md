@@ -17,7 +17,7 @@ This page contains my verified documents for applications and evolution
   [View Marksheet](10th_marksheet.jpg)
 
 - **Certificate of Advanced Instrumentation Techniques**  
-  [View Certificate](certificate.pdf)
+  [View Certificate](Certificate.jpeg)
 
 - **Sports National Certificate**
   [View Certificate](Sports.jpeg)
