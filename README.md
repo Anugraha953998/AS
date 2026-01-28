@@ -20,7 +20,7 @@ This page contains my verified documents for applications and evolution
   [View Certificate](Certificate.jpeg)
 
 - **Sports National Certificate**
-  [View Certificate](Sports.pdf)
+  [View Certificate](SPORTS.pdf)
 
 - **Degree Marklist**
   [View Certificate](DEGREE.pdf)
