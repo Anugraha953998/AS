@@ -17,7 +17,7 @@ This page contains my verified documents for applications and evolution
   [View Marksheet](sslc.jpeg)
 
 - **Certificate of Advanced Instrumentation Techniques**  
-  [View Certificate](Certificate.jpeg)
+  [View Certificate](TRAINING.jpeg)
 
 - **Sports National Certificate**
   [View Certificate](SPORTS.pdf)
