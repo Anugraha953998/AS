@@ -14,7 +14,7 @@ This page contains my verified documents for applications and evolution
   [View Marksheet](12th_marksheet.jpg)
 
 - **Secondary Education Marksheet**  
-  [View Marksheet](10th_marksheet.jpg)
+  [View Marksheet](sslc.jpeg)
 
 - **Certificate of Advanced Instrumentation Techniques**  
   [View Certificate](Certificate.jpeg)
