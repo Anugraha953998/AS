@@ -23,5 +23,5 @@ This page contains my verified documents for applications and evolution
   [View Certificate](Sports.jpeg)
 
 - **Degree Marklist**
-  [View Certificate](Sem1(1)_Sem2_sem3_merged.pdf)
+  [View Certificate](DEGREE.pdf)
 ---
